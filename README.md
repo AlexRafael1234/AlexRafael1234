@@ -1,5 +1,5 @@
 - 👋 Oi,sou o Alex
-- 👀 tenho 12 anos
+- 👀 tenho 14 anos
 - 🌱 sou estudante em programação,cybersigurança
 - 💞️ Sou de minas Gerais
 
